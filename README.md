@@ -7,4 +7,4 @@ Here are some ideas to get you started:
 - 🔭 I’m currently study in CJCU.
 - 🌱 I’m currently learning Aviation and Marine Management, Japanese
 - 📫 How to reach me:114B05873@mailst.cjcu.edu.tw
-●-THREADS:https://www.threads.com/@azusa__1130?igshid=NTc4MTIwNjQ2YQ==
+- 📫THREADS:https://www.threads.com/@azusa__1130?igshid=NTc4MTIwNjQ2YQ==
